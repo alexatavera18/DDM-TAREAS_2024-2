@@ -7,4 +7,4 @@ https://www.youtube.com/watch?v=jcR36fsi2Tc
 
 
 Video Proyecto 1:
-https://youtu.be/jcR36fsi2Tc
+https://youtu.be/SVaJ9s0BCN0?si=Iqb3X_6Ftay4OZUG
